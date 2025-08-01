@@ -7,6 +7,8 @@ Below are three selected pieces from my portfolio that reflect this approach:
 - A visual chart comparing printer models  
 - A tech explainer on emerging trends like WPA3
 
-Each item was created to support training, improve customer understanding, and drive performance across digital and retail platforms. These samples represent my passion for storytelling, technical clarity, and team enablement.
+Each item was designed to support training, enhance customer understanding, and drive performance across both digital and retail platforms. These samples represent my passion for storytelling, technical clarity, and team enablement.
 
 More samples are available upon request or can be added as needed.
+
+Connect with me on [LinkedIn](https://linkedin.com/in/cheri-beaman)
